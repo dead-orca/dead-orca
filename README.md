@@ -12,7 +12,7 @@ Yoo supp man iam w website hunter i just created this acc for meet new team and 
 
 Hmmm I think you want to ask me for something XD .dont worry i will tell you 
 
-anyway Iam a attack bots make and websites (fake web) programmer yeaah im not the best but finally !!!
+anyway Iam a attack bots maker and websites (fake web) programmer yeaah im not the best but finally !!!
 
 I WANT A NEW TEAM TO JOIN IT AND THAANKS !! (:
 
